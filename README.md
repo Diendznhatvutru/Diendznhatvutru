@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Diendznhatvutru
-- 🌱 Tôi hiện đang học.Tại Trường Đại học nông lâm  
+- 🌱 Tôi hiện đang học.Tại Trường Đại học nông lâm
+-❤️ Tôi hiện tại đã có người yêu tên là Phùng Thư ❤️
 - 📫 Làm thế nào để liên hệ với tôi ... 0336122127 orquy231653 @ gmail.com Trân
 Trọng
 <! ---
