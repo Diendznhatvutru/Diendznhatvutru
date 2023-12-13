@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Diendznhatvutru
-- 👀 Tôi quan tâm đến.Trùmtrick
-- 🌱 Tôi hiện đang học.Tại
-- 💞️ Tôi muốn cộng tác trên ... FB
+- 🌱 Tôi hiện đang học.Tại Trường Đại học nông lâm  
 - 📫 Làm thế nào để liên hệ với tôi ... 0336122127 orquy231653 @ gmail.com Trân
 Trọng
 <! ---
